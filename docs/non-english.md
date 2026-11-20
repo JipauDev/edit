@@ -1789,6 +1789,7 @@
 * 🌐 **[Non-English Ebook & Audiobook Sites](https://redd.it/gehkl0)**
 * ↪️ **[Asian Drama Sites](https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/video#wiki_.25B7_drama_streaming)**
 * [kool.to](https://www.kool.to/) - Multilingual / Live TV
+* [AnimeEnglish](https://animeenglish.com/) - Anime English / Sub / 1080p
 * [Keyman](https://keyman.com/) - Multilingual / Keyboard Files
 * [⁠Albkanale](https://albkanale.com/) - Albanian / Live TV / Android
 * [amharicbookss](https://t.me/amharicbookss) - Amharic / Books
